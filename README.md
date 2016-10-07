@@ -1,0 +1,3 @@
+# midtermBIGDATA
+MID
+Zhumadilov Yerassyl
